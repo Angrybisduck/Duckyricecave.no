@@ -1,3 +1,2 @@
 
 # hahahahaha
-![Uploading qweqeqeqeeq.PNG…]()
